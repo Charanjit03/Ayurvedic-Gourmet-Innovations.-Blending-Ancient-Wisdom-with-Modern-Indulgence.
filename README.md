@@ -93,3 +93,10 @@ My mission is to launch an online-only Ayurvedic gourmet innovation business tha
 `
 
 ---# Ayurvedic-Gourmet-Innovations.-Blending-Ancient-Wisdom-with-Modern-Indulgence.
+
+
+⚠️ Disclaimer
+> These Ayurvedic ice‑cream recipes are not medicines and are not intended to diagnose, treat, cure, or prevent any disease.  
+> They are functional wellness desserts formulated using ingredients traditionally recognized in Ayurveda for their nutritional and therapeutic properties.  
+> Their purpose is to support general health, balance, and prevention as part of a wholesome diet — similar to dietary supplements.  
+> Individuals with medical conditions should consult a qualified healthcare professional before using any herbal or functional food for therapeutic purposes.  
